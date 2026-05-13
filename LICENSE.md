@@ -1,4 +1,4 @@
-# 
+# Adobe Illustrator for macOS professional Plugin - vector export and export presets offers the most advanced Adobe Illustrator for macOS plugin, with vector export and export
 
 
 
